@@ -1,2 +1,0 @@
-# weiskei
- website kosmetik
